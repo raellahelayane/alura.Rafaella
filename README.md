@@ -1,1 +1,1 @@
-# alura.Rafaella
+Oi, eu sou a Rafaella, moro na cidade de Ibiuna- SP, estudo na escola E.E Prof Laurinda Vieira Pinto, faco Alura com a proferra Karina e aqui eu irei postar os meus trabalhos que faco dentro do Alura!
